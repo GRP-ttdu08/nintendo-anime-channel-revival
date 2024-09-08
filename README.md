@@ -1,2 +1,2 @@
-# nintendo-anime-channel-revival
-Revival of Nintendo Anime Channel
+# Nintendo Anime Channel Revival
+ttdu08 Anime Channel
